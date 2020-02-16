@@ -1,1 +1,1 @@
-# rsschool-cv
+https://lden4ik.github.io/rsschool-cv/cv
